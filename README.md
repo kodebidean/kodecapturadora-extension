@@ -1,0 +1,1 @@
+# kodecapturadora-extension
